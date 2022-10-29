@@ -5,4 +5,4 @@
 1. Отличный старт в IT
 2. Интересная профессия
 
-![](https://9gag.com/gag/aWqeQ74?ref=android.s)
+![](https://phonoteka.org/uploads/posts/2021-05/1622201087_4-phonoteka_org-p-tornado-art-krasivo-4.jpg)
